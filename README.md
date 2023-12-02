@@ -1,2 +1,2 @@
 # ONE-PIECE
-the king of the pirates
+sashiiburri thaana mugiiwaraa
